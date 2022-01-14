@@ -21,5 +21,5 @@
 - Coloque o creme de leite e o molho de tomate.
 - Adicione o milho (sem água) e o champignon (também sem água)
 - Adicione o ketchup e a mostarda e mexa bem
-- Sirva com batata palha :hypoggers:
+- Sirva com batata palha
 
